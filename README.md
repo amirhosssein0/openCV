@@ -1,0 +1,1 @@
+funny cv project
